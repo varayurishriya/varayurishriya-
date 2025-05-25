@@ -1,7 +1,7 @@
 # Hi, I’m Shriya 👋 
 
 
-🧠 Computer science student at B- tech
+🧠 Computer science student in B- tech
 🌷 design and web development 
 🪡 I worked on many projects and apps to stay consistent
 📷 reach out to me on my Instagram:(https://www.instagram.com/)
